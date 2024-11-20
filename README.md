@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Uzair Dabir
 - 👀 I’m interested in Programming\Coding
-- 🌱 I’m currently learning Diploma in Computer Science\Computer Engineering
+- 🌱 I’m currently learning Degree in Computer Science\Computer Engineering
 - 📫 How to reach me My email ID- udabir9@gmail.com
 - My LInkdIn Profile - https://www.linkedin.com/in/uzair-dabir-585094241/
 
